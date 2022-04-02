@@ -1,3 +1,0 @@
-# stephanelamy.github.io
-
-test
